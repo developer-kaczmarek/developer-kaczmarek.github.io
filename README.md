@@ -1,2 +1,2 @@
-# developer-kaczmarek.github.io
-✨ Well met! [Link to my personal page](https://developer-kaczmarek.github.io).
+# lina.hoba.su
+✨ Well met! [Link to my personal page](https://lina.hoba.su).
